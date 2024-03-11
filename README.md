@@ -12,6 +12,10 @@
 
 <hr>
 
+![imagen](https://github.com/ZombieGeeK0/LogicBomb/assets/158185295/ac7c9239-67c1-4b9a-b94d-a821814ce76c)
+
+<hr>
+
 `[ 📬 ]` Contacta conmigo a través de `Discord` mandando una invitación a `qwfkr.`
 
     qwfkr
